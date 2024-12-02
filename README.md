@@ -1,0 +1,1 @@
+# Fujiismay.github.io
